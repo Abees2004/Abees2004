@@ -66,5 +66,4 @@ Location: India
 
 ## Contact
 
-- LinkedIn: (Add your link)  
-- Email: (Add your email)
+- Email: abeeshrj3@gmail.com
